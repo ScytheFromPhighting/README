@@ -3,7 +3,7 @@
 
 
 <p align="center">
-Scy or Scythe. 
+Scy / Scythe / Rifle
 
 <p align="center">
 Pronouns: She/Her
